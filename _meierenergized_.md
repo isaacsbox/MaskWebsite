@@ -24,4 +24,4 @@ Everyone contributed.
 Not completed at the last minute:
 It was not completed last minute.
 
-Good job, definitly a nice webpage!! 
+Good job, definitly a nice webpage!! 75% / 100%
